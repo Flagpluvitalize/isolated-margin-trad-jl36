@@ -1,4 +1,4 @@
-# 
+# isolated-margin trading bot premium Algorithm | trailing-stop & grid-trading offers the most advanced isolated-margin trading bot, with trailing-stop and grid-trading. Ideal for
 
 
 
